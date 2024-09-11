@@ -1,2 +1,3 @@
-# Ini adalahsssssssssssssssepository untuk latihan membuat  nambah 
-mimimamomu
+
+# Ini adalahsssssssssssssssepository untuk latihan membuat  nambah
+oh really
